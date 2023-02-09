@@ -1,1 +1,1 @@
-# https-appzsoft.com-worms-zone-io-hungry-snake-download-
+# https://appzsoft.com/worms-zone-io-hungry-snake-download/
